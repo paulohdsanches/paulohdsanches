@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Paulo Sanches 😁
+## Bem-vindo(a) ao perfil de Paulo Sanches 🧔🏻
 
  <div>
    <a href="https://github.com/paulohdsanches">
